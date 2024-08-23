@@ -1,0 +1,1 @@
+nesto 69 lmaoooo tj izmena 1
